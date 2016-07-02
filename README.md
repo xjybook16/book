@@ -2,7 +2,7 @@
 
 
 <p><img src="https://cloud.githubusercontent.com/assets/19661274/16099610/8207e1c8-339c-11e6-93e0-b78ff89e6833.png"></p>
-
+<P><a href="https://d392b2a699r5g7.cloudfront.net/cn/book/新紀元中國時局暢銷書合集-86717373"><img src="https://cloud.githubusercontent.com/assets/19661274/16540320/e3b84ce6-40a3-11e6-9cf8-29836025d40d.jpg"></a></p>
 <p><a id="user-content-book-043" href="https://d392b2a699r5g7.cloudfront.net/cn/book/習近平軍改揭秘-6035271?m=https://d392b2a699r5g7.cloudfront.net&amp;u=234234343244324" title="習近平軍改揭秘" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661274/16367373/076076ec-3c66-11e6-87ef-b34708094bae.jpg"></a></p>
 
 <p><img src="https://cloud.githubusercontent.com/assets/19661274/16367374/07610922-3c66-11e6-9d9d-30a5d3141c24.jpg"></p>
