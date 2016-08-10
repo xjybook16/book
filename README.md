@@ -4,7 +4,7 @@
 
 <img src="https://cloud.githubusercontent.com/assets/19661274/16099611/82086396-339c-11e6-89e2-241320f5f270.png">
 
-<p><a id="user-content-xjyweekly" href="https://github.com/zx168/XJY">新紀元周刊</a>每週三出刊
+<p><a id="user-content-xjyweekly" href="https://github.com/tomalltruthforyou/truth/issues/18">新紀元周刊</a>每週三出刊
 <a id="user-content-xjyweekly" href="https://d362h5c57artor.cloudfront.net/cn/books/shop?m=https://d362h5c57artor.cloudfront.net&amp;u=1001web">新紀元電子商務網-新紀元書城</a>.</p>
 
 <p>台灣：誠品、金石堂、博客來網路書店、機場等各大書店發售 | 香港/澳門書店及旺角、尖沙咀、銅鑼灣、澳門書報攤發售</p>
