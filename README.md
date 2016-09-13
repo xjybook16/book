@@ -1,7 +1,7 @@
 <p><img src="https://cloud.githubusercontent.com/assets/19661274/16099610/8207e1c8-339c-11e6-93e0-b78ff89e6833.png"></p>
-<p>当今的世界正以让所有人瞠目结舌的方向和速度变化，中国人正逐渐走回世界舞台的中心。這需要敏锐智慧的心灵，更需要东方古老而又崭新的视野。新纪元愿冲破重重封锁，将把握这个新时代的钥匙送到您面前。请点击下图获取中共高层随时关注，却又不想让民众看到的中国第一禁书。
+<a id="user-content-header" href="https://d78jyz3a4zd2q.cloudfront.net/cn/books/shop?m=https://d78jyz3a4zd2q.cloudfront.net&amp;u=1001web"><img border="0" src="https://cloud.githubusercontent.com/assets/18081243/18481052/d8827a34-79a8-11e6-82b8-ecca44ca7e98.jpg" style="max-width:100%;"></a>
+<p>如果您在大陆从政、經商，「中国第一禁书」就是你私人的政治內參，让您预知局势发展趋势，避免「拜错山头，上错香」，在纷乱的局势中抓住先机致胜。请点击上图获取中共高层随时关注，却又不想让民众看到的中国第一禁书。
 </p>
-<a id="user-content-header" href="https://d78jyz3a4zd2q.cloudfront.net/cn/books/shop?m=https://d78jyz3a4zd2q.cloudfront.net&amp;u=1001web"><img border="0" src="https://cloud.githubusercontent.com/assets/19661132/18463692/e6646b8e-7959-11e6-8069-dcacbc97bb29.jpg" style="max-width:100%;"></a>
 <img src="https://cloud.githubusercontent.com/assets/19661274/16099611/82086396-339c-11e6-89e2-241320f5f270.png">
 
 <a id="user-content-book-013" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/被掩藏的内幕-41637146?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1001web" title="被掩藏的内幕"><img border="0" width="210" alt="被掩藏的内幕" src="https://cloud.githubusercontent.com/assets/19661132/18464063/94ed5664-795c-11e6-8018-3dda8fc4e16b.jpg" style="max-width:100%;"></a>
