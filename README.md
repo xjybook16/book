@@ -1,5 +1,5 @@
 <a id="user-content-header" href="https://d78jyz3a4zd2q.cloudfront.net/cn/books/shop?m=https://d78jyz3a4zd2q.cloudfront.net&amp;u=1001web"><img border="0" src="https://cloud.githubusercontent.com/assets/18081243/18481052/d8827a34-79a8-11e6-82b8-ecca44ca7e98.jpg" style="max-width:100%;"></a>
-<p>如果您在大陆从政、經商，「中国第一禁书」就是你私人的政治內參，让您预知局势发展趋势，避免「拜错山头，上错香」，在纷乱的局势中抓住先机致胜。请点击上图获取中共高层随时关注，却又不想让民众看到的中国第一禁书。
+<p>如果您在大陆从政、经商，「中国第一禁书」就是你私人的政治內參，让您预知局势发展趋势，避免「拜错山头，上错香」，在纷乱的局势中抓住先机致胜。请点击上图获取中共高层随时关注，却又不想让民众看到的中国第一禁书。
 </p>
 <p><img src="https://cloud.githubusercontent.com/assets/19661274/16099610/8207e1c8-339c-11e6-93e0-b78ff89e6833.png"></p>
 <a id="user-content-book-013" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/薄熙来系列-41637146?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1001web" title="薄熙来系列"><img border="0" height="260" alt="薄熙来系列" src="https://cloud.githubusercontent.com/assets/18081243/18481066/e0b64c30-79a8-11e6-8160-fbda47cc3f5f.jpg" style="max-width:100%;"></a>
