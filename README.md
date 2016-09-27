@@ -1,7 +1,7 @@
 <a id="user-content-header" href="https://d6rojcwfw6e31.cloudfront.net/cn/books/shop?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1003wechat"><img border="0" src="https://cloud.githubusercontent.com/assets/18081243/18481052/d8827a34-79a8-11e6-82b8-ecca44ca7e98.jpg" style="max-width:100%;"></a>
 <p>如果您在大陆从政、经商，「中国第一禁书」就是你私人的政治內參，让您预知局势发展趋势，避免「拜错山头，上错香」，在纷乱的局势中抓住先机致胜。【请点击上图】获取中共高层随时关注，却又不想让民众看到的禁书。
 </p>
-<p><img src="https://cloud.githubusercontent.com/assets/19661274/16099610/8207e1c8-339c-11e6-93e0-b78ff89e6833.png"></p>
+<p><img src="https://cloud.githubusercontent.com/assets/20497761/18823715/69f77696-838a-11e6-82f7-6c9694358fd1.png"></p>
 <a id="user-content-book-H02" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/新紀元薄-王-谷案黑幕系列-88384682?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1003wechat" title="薄熙来系列"><img border="0" height="260" alt="薄熙来系列" src="https://cloud.githubusercontent.com/assets/18081243/18481066/e0b64c30-79a8-11e6-8160-fbda47cc3f5f.jpg" style="max-width:100%;"></a>
 <a id="user-content-book-H03" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/新紀元習江生死鬥全集系列-46270188?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1003wechat" title="习江斗系列"><img border="0" height="260" alt="习江斗系列" src="https://cloud.githubusercontent.com/assets/18081243/18481086/ed55931a-79a8-11e6-9f2d-e28fc3447d1e.jpg" style="max-width:100%;"></a>
 <a id="user-content-book-H04" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/新紀元大陸最陰險官員曾慶紅-2687641?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1003wechat" title="曾庆红系列"><img border="0" height="260" alt="曾庆红系列" src="https://cloud.githubusercontent.com/assets/18081243/18481092/f24ff2c0-79a8-11e6-984f-71c3385a21be.jpg" style="max-width:100%;"></a>
